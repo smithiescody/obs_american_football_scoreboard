@@ -14,8 +14,8 @@ Accepting Donations for those who appreciate it. Any donations will help our net
 We will likely come out with a Basketball, Wrestling, and Baseball/Softball one soon since that's also what our network will be covering..
 
 [![Help Support FLOWW Network](https://img.shields.io/badge/Buy%20Me%20a%20Coffee-FF5F5F?style=for-the-badge&logo=buy-me-a-coffee&logoColor=white)](https://www.buymeacoffee.com/flowwnetwork)
-Our Network is FLOWW Network - an Idaho Sports News Network.
 
+Our Network is [FLOWW Network - an Idaho Sports News Network](https://instagram.com/flowwnetwork)
 
 Any questions can be directed to Cody @ codys@flowwmedia.net.
 
